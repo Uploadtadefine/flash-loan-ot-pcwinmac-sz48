@@ -1,4 +1,4 @@
-# 
+# Automatic flash loan arbitrage bot templates for Mac OS | Secure flash loan arbitrage bot templates for PC Windows. Featuring slippage control and stop-loss protection — optimized for maximum performance on every platform.
 
 
 
